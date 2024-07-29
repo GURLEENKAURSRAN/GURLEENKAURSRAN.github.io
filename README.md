@@ -14,3 +14,4 @@ That's all abot me. Thank you.
 
 |Date|Name of person|Detail|
 |-----|-----|-----|
+|27-07-2024|Dr. Kanwalpreet Kaur Bhatt(Homeopathic practitioner and meditation counsellor)|It was our last day of induction program. Dr. Kanwalpreet Kaur Bhatt tells us about the benefits of meditation. She inspired us all to do meditation daily according to your age. She tells us that if you are 20 years old then you have to mediate your self for 20 mintues only. When we meditate our self then we see new energy level in us. We also do meditation for 20 mintues in auditorium for practice.|
